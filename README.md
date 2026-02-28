@@ -36,7 +36,7 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - The Catalyst
   - Lotus
   
-  Well, that was quite a month. I've lived, died and rebirth in a span of 2 weeks.
+  Well, that was quite a month. I've lived, died, went to purgatory and rose from the dead, all in a span of 2 weeks.
 
   Here's the recap: 
   - I've made some friends
@@ -51,9 +51,9 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - Understood my true will
   - Understood the true meaning of love
 
-  I can finally feel the warmth of the sunlight again, I am no longer trapped in the cold embrace of the shadows.
-
   ---
+
+  I can finally feel the warmth of the sunlight again, I am no longer trapped in the cold embrace of the shadows.
 
   I shall no longer need to drown myself into an entire bottle of Melatonin to be able to sleep.
 
@@ -73,13 +73,13 @@ All the chapters below are linked to their relative songs. Most songs are not me
 
   ---
 
-  We shall see each other again eventually, but for now I must go
+  We shall see each other again, but for now I must go.
 
-  I still have to reach the end of this chapter, but at least this time I have some hope.
+  I still have to reach the end of this chapter, but at least this time I have hope.
 
   I have the strength to keep pushing, I have someone to care for, a Catalyst to ease away the burdens in my mind.
   
   My Catalyst is you, Lotus.
 
-  I shall wear the ring as an homage of everything you and your brother meant to me.
+  I shall wear the ring as an homage of everything you and your brother mean to me.
 </details>
