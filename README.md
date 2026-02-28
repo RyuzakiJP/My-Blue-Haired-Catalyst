@@ -54,6 +54,43 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - Yoshu Fukushu
   - Battle Cry
   - Robot Boy
+
+  Whilst drugging himself beyond any human comprehension
+
+  All he wanted to do was die
+  
+  However, without any further explanation, beyond any rational thinking during this state, his mind wandered somewhere
+  
+  Under what felt like certain death, Morningstar took one final decision with his life
+  
+  ### He would either ride to certain death and win, or die trying
+
+  That was probably the best decision he has made
+
+  ---
+  ***_Just one more time before I go_***
+  
+  ***_I'll let you know_***
+
+  ***_That all this time, I've been afraid_***
+
+  [...]
+  
+  ***_Fear is ever changing and evolving_***
+  
+  ***_And I_***
+  
+  ***_I've been poisoned inside_***
+  
+  ***_But I_***
+  
+  ***_I feel so alive_***
+  
+  ### _NOBODY CAN SAVE ME NOW_
+  ### _The king is crowned: Its do or die_
+  ### _NOBODY CAN SAVE ME NOW_
+  ### _The only sound_
+  ### _IS A BATTLE CRY_
 </details>
 
 <details>
@@ -109,4 +146,14 @@ All the chapters below are linked to their relative songs. Most songs are not me
   My Catalyst is you, Lotus.
 
   I shall wear the ring as an homage of everything you and your brother mean to me.
+
+  --- 
+  
+  ***_Gather Around_***
+  
+  ***_Holding close your sons and daughters_***
+  
+  ***_Promise them that we will all be alright_***
+  
+  ***_Let them know you love them all_***
 </details>
