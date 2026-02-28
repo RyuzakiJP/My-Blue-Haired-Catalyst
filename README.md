@@ -10,6 +10,10 @@ My Blue-Haired Catalyst tells the story of a boy, that on the verge of death, ga
 
 Somewhere where he felt safe, trusted, loved. 
 
+[Link to the Spotify Album](https://open.spotify.com/playlist/6HQaEU7NnaMQDUqvJy9G5D?si=2b13e1cbeec54679)
+
+
+
 <img src="FLOR-NO-LIXO.jpg" width="500" height="300">
 
 ### WIP
@@ -210,3 +214,8 @@ All the chapters below are linked to their relative songs. Most songs are not me
   
   ***_Let them know you love them all_***
 </details>
+
+Trivia: 
+- The Album has exactly 20 songs for a specific reason.
+- It took 2 days of work to cherry-pick every song that would fit the context of the story
+- It was first made to be just an album, but I've later turned it into an IRL ARG
