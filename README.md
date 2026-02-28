@@ -12,21 +12,48 @@ Somewhere where he felt safe, trusted, loved.
 
 ### WIP
 
-All the chapters below are linked to their relative songs. Most songs are not meant to be seen by their lyrics unless explicitly told so (Most songs were just used for their vibes and title)
+All the chapters below are linked to their relative songs. Most songs are not meant to be seen by their lyrics (Most songs were just used for the title and the raw feelings they bring out)
 <details>
-  <summary>Chapter 1: The Getaway</summary>
+  <summary>Chapter 1: The Getaway</summary>  
+    
+  ### Songs:
+  - The Getaway
+  - Swim
+  - Into It
+  
 </details>
 
 <details>
-  <summary>Chapter 2: In The Zone (of love)</summary>
+  <summary>Chapter 2: In The Zone (of love?)</summary>
+
+  ### Songs:
+  - In The Zone
+  - I Wanna Make Her Happy So Bad
+  - Cigarretes out the window
+  - Lovers Rock
+  - The Only Exception
+  - Roulette
+  - It Almost Worked
+  - All I wanted
 </details>
 
 <details>
   <summary>Chapter 3: Drowning in the pool of despair and paranoia</summary>
+    
+  ### Songs:
+  - Slow Down
+  - Drown
+  - I wont give in
+  - A Prophecy
 </details>
 
 <details>
   <summary>Chapter 4: Battlecry</summary>
+      
+  ### Songs:
+  - Yoshu Fukushu
+  - Battle Cry
+  - Robot Boy
 </details>
 
 <details>
