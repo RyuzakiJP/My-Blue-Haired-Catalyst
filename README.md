@@ -45,6 +45,22 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - Drown
   - I wont give in
   - A Prophecy
+
+  Whilst the flower withered as the tides shifted, Morningstar drowned in a pool of despair and uncertainty.
+
+  He felt like death was a prefferable approach over loss.
+
+  He almost didnt make it back.
+
+  ---
+  
+  ***_How stubborn are the scars when they wont fade away?_***
+
+  ***_Or just a gentle reminder that now are better days?_***
+
+  _We'll be home soon, so dry your eyes_
+  
+  _You'll be okay._
 </details>
 
 <details>
@@ -68,6 +84,7 @@ All the chapters below are linked to their relative songs. Most songs are not me
   That was probably the best decision he has made
 
   ---
+  
   ***_Just one more time before I go_***
   
   ***_I'll let you know_***
