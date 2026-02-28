@@ -39,6 +39,38 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - Roulette
   - It Almost Worked
   - All I wanted
+
+  For the first time in his life, little Morningstar felt he was somewhere the belonged. He felt happy. Too happy.
+
+  However, that did come with its own set of problems: He felt fear.
+
+  <br>
+
+  Fear that this wouldn't last forever.
+
+  Fear of losing his new home.
+
+  Fear of losing his friends.
+
+  Fear of what he was starting to feel...
+
+  For the first time in all these years, he felt loved. He felt like he mattered.
+
+  In his mind, this had its own set of implications...
+
+  ---
+  
+  _I have a problem where I cannot explain_
+
+  _I have no reasons why I should have been so plain_
+  
+  _Have no questions but I sure have excuse_
+
+  _I lack the reason why I should be so confused_
+
+  _I know, how I feel when I'm around you_
+
+  _I, dont know, how I feel when I'm around you_ 
 </details>
 
 <details>
