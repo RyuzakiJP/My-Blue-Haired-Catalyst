@@ -39,13 +39,13 @@ All the chapters below are linked to their relative songs. Most songs are not me
 
   <br>
 
-  (Insert Song 1: The Getaway)
+  ### (Insert Song 1: The Getaway)
 
   After leaving all his trust issues aside, he tried running away from himself by finding friends on another city.
 
   Upon arriving there, things were a little tense, he didnt speak much, as he felt fear of saying wrong.
 
-  (Insert Song 2: Swim, followed to Into It)
+  ### (Insert Song 2: Swim, followed to Into It)
 
   With time, he gave in at the experience, and started to get confortable with having them around.
   
@@ -68,9 +68,17 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - It Almost Worked
   - All I wanted
 
-  For the first time in his life, little Morningstar felt he was somewhere the belonged. He felt happy. Too happy.
+  ### (Insert Song 4: In The Zone, followed by Song 5 through 7)
 
-  However, that did come with its own set of problems: He felt **fear.**
+  For the first time in his life, little Morningstar felt he was somewhere the belonged. 
+
+  He wanted to stay there forever, protect his new home.
+  
+  He felt happy. Too happy.
+
+  ### (Insert Song 8: Roulette)
+
+  That did come with its own set of problems: He felt **fear.**
 
   **Fear that this wouldn't last forever.**
 
@@ -80,7 +88,11 @@ All the chapters below are linked to their relative songs. Most songs are not me
 
   **Fear of what he was starting to feel...**
 
-  For the first time in all these years, he felt loved. He felt like he mattered.
+  For the first time in all these years, He felt right at home, He felt like he mattered.
+
+  ### (Insert Song 9: Roulette, followed by song 10 and 11)
+
+  He felt... loved?
 
   In his mind, this had its own set of implications...
 
@@ -108,11 +120,22 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - I wont give in
   - A Prophecy
 
+  ### (Insert Song 12: Slow Down)
+
+  Morningstar spoke to one of the friends about his worries, how he felt like he was about to lose everything he cared for
+
+  His friend assured him that wasnt the case, and that he was probably just too fucking high.
+
+  ### (Insert Song 13: Drown, followed by song 14)
+
   Whilst Morningstar lived with his paranoia of losing his new home, something rather unfortunate happened
 
   His best friend called, she tried ending herself on that fateful night.
 
+  ### (Insert Song 15: A Prophecy)
   Whilst the flower withered as the tides shifted, Morningstar drowned in a pool of despair and uncertainty.
+
+  He wasnt there to protect his best friend.
 
   He felt like death was a prefferable approach over grieving his new home.
 
@@ -137,17 +160,28 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - Battle Cry
   - Robot Boy
 
+  ### (Insert Song 15: Yoshu Fukushu)
+
   Whilst drugging himself beyond any human comprehension
 
   All he wanted to do was die
   
   However, without any further explanation, beyond any rational thinking during this state, his mind wandered somewhere
-  
+
+  ### (Insert Song 17: Battle Cry)
   Under what felt like certain death, Morningstar took one final decision with his life:
   
   ### He would either ride to certain death and win, or die trying
 
   He wanted to improve himself so he could protect his new home.
+
+  ### (Insert Song 18: Robot Boy)
+
+  And so he did, he sought help. And help he got.
+
+  He even called one of his friends, which gave him some insights
+
+  ### (Insert Song 18: Robot Boy)
 
   ---
   
