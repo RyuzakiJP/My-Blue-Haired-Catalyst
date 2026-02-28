@@ -28,6 +28,30 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - The Getaway
   - Swim
   - Into It
+
+  And so here began the journey of our character: Morningstar was a teenager that never felt truly loved.
+
+  He had no friends during his childhood, grewing alone by itself and a computer.
+
+  The computer is all that kept him sane throughout this years, but in fact, it did not. It only numbed the truth.
+
+  One day, he decided to try and change his situation: He needed friends. He wanted to feel actually alive, actually human.
+
+  <br>
+
+  (Insert Song 1: The Getaway)
+
+  After leaving all his trust issues aside, he tried running away from himself by finding friends on another city.
+
+  Upon arriving there, things were a little tense, he didnt speak much, as he felt fear of saying wrong.
+
+  (Insert Song 2: Swim, followed to Into It)
+
+  With time, he gave in at the experience, and started to get confortable with having them around.
+  
+  However, as he never felt what it was like to have friends, he quickly started getting attach to them.
+
+  Too attach in fact...
   
 </details>
 
@@ -84,6 +108,10 @@ All the chapters below are linked to their relative songs. Most songs are not me
   - I wont give in
   - A Prophecy
 
+  Whilst Morningstar lived with his paranoia of losing his new home, something rather unfortunate happened
+
+  His best friend called, she tried ending herself on that fateful night.
+
   Whilst the flower withered as the tides shifted, Morningstar drowned in a pool of despair and uncertainty.
 
   He felt like death was a prefferable approach over grieving his new home.
@@ -115,11 +143,11 @@ All the chapters below are linked to their relative songs. Most songs are not me
   
   However, without any further explanation, beyond any rational thinking during this state, his mind wandered somewhere
   
-  Under what felt like certain death, Morningstar took one final decision with his life
+  Under what felt like certain death, Morningstar took one final decision with his life:
   
   ### He would either ride to certain death and win, or die trying
 
-  That was probably the best decision he has made
+  He wanted to improve himself so he could protect his new home.
 
   ---
   
