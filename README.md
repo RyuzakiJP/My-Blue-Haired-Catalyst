@@ -16,8 +16,6 @@ Somewhere where he felt safe, trusted, loved.
 
 <img src="FLOR-NO-LIXO.jpg" width="500" height="300">
 
-### WIP
-
 All the chapters below are linked to their relative songs. Most songs are not meant to be seen by their lyrics
 
 (Most songs were just used for the title and the raw feelings they bring out)
